@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @canwar450
+- 👋 Hi, I’m Choirul Anwar
 - 👀 I’m interested in Graphic Design, UI Design, UX Research, and Presentation Design
 - 🌱 I’m currently learning about Product Design
 - 💞️ I’m looking to collaborate on Digital Product Service
